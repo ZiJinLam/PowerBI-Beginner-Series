@@ -1,2 +1,0 @@
--- Dataset if conducted by @Alex The Analyst
--- Project references to @Alex The Analyst YouTube
